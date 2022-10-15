@@ -7,10 +7,10 @@ widget: collection
 headless: true
 
 # Order that this section appears on the page.
-weight: 60
+weight: 110
 
-title: Recent Posts
-subtitle:
+title: Neuigkeiten
+subtitle: Hier halten wir Euch auf dem Laufenden
 
 content:
   # Filter on criteria

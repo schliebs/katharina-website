@@ -9,13 +9,13 @@ headless: true
 active: true
 
 # Order that this section appears on the page.
-weight: 66
+weight: 115
 
-title: Brief Katharina an Unterstützer
-subtitle: Zum lesen Bitte klicken
+title: Bilder von Katharina
+subtitle: In Guadualito, Apure, Venezuela
 
 design:
   columns: '1'
 ---
 
-{{< gallery album="brief" >}}
+{{< gallery album="bilderkatha" >}}
