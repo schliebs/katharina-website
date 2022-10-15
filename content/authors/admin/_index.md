@@ -65,6 +65,6 @@ Wir werden täglich hier über den neuen Spendenstand informieren.
 Bei Rückfragen stehen wir sehr gerne über das [Kontaktformular](contact) und telefonisch unter +49 151 12145283 zur Verfügung.
 Herzlichen Dank für Ihre Unterstützung, wir sind unendlich dankbar. 
 Ihre
-Andrea Schmid (Katharinas Mutter)
-Wolfgang Maichle (Katharinas Vater)
-Margit Amon (Unterstützerkreis Katharina)
+- Andrea Schmid (Katharinas Mutter)
+- Wolfgang Maichle (Katharinas Vater)
+- Margit Amon (Unterstützerkreis Katharina)
