@@ -50,7 +50,7 @@ Für das Berufungsverfahren benötigen die Anwälte noch einmal mindestens 25 00
 Deshalb möchten wir Euch inständig bitten, für die Anwalts-und Gerichtskosten von Katharina zu spenden. Auch wenn Ihr 10.- oder 20.- Euro spenden könnt, hilft es, wenn wir viele sind, die etwas geben können. Unser Ziel ist, dass Katharina an Weihnachten frei ist und Ihren Albtraum beenden kann. 
 Bitte unterstützt sie, damit wir dies erreichen können.
 
-Update: In den ersten Stunden ist die Kampagne bereits unglaublich angelaufen, wir sind überwältigt. 6970€ von über 75 großzügigen Spendern! Leider wurde die Spendensammlung vom Betreiber “GoFundMe.com” vorläufig aufgrund von US-Sanktionen gegen Venezuela blockiert (siehe [Post hier](#post/getting-started)). Wir kämpfen für die Freigabe des Geldes und halten Euch hier auf dem Laufenden!
+Update: In den ersten Stunden ist die Kampagne bereits unglaublich angelaufen, wir sind überwältigt. 6970€ von über 75 großzügigen Spendern! Leider wurde die Spendensammlung vom Betreiber “GoFundMe.com” vorläufig aufgrund von US-Sanktionen gegen Venezuela blockiert (siehe [Post hier](post/getting-started)). Wir kämpfen für die Freigabe des Geldes und halten Euch hier auf dem Laufenden!
 
 Bis das Missverständnis mit den US-Sanktionen gegen Venezuela geklärt ist können leider keine Gelder via GoFundMe, Paypal, VISA und anderen US-Dienstleistern in Empfang genommen werden. 
 Sollten Sie spenden wollen, bitten wir daher um eine Überweisung mit dem Betreff "Katharina Maichle" an folgendes Spendenkonto: 
@@ -62,7 +62,7 @@ Sollten Sie spenden wollen, bitten wir daher um eine Überweisung mit dem Betref
 
 Wir werden täglich hier über den neuen Spendenstand informieren.
 
-Bei Rückfragen stehen wir sehr gerne über das [Kontaktformular](#contact) und telefonisch unter +49 151 12145283 zur Verfügung.
+Bei Rückfragen stehen wir sehr gerne über das [Kontaktformular](contact) und telefonisch unter +49 151 12145283 zur Verfügung.
 Herzlichen Dank für Ihre Unterstützung, wir sind unendlich dankbar. 
 Ihre
 Andrea Schmid (Katharinas Mutter)
