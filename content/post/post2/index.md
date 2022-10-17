@@ -9,7 +9,7 @@ summary: Lokale Zeitungsartikel aus Venezuela
 projects: []
 
 # Date published
-date: '2020-10-09T00:00:00Z'
+date: '2022-10-14T00:00:00Z'
 
 # Date updated
 #lastmod: '2020-12-13T00:00:00Z'

@@ -9,7 +9,7 @@ summary: In den ersten Stunden ist die Kampagne bereits unglaublich angelaufen, 
 projects: []
 
 # Date published
-date: '2020-10-15T17:10:00Z'
+date: '2022-10-15T17:10:00Z'
 
 # Date updated
 #lastmod: '2022-10-15T17:10:00Z'
