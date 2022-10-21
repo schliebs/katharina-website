@@ -43,7 +43,7 @@ Liebe Freundinnen und Freunde,
 
 ++ [Update 17.10.](post/spendenupdate): Bereits 11,050€ gesammelt, wir sind unendlich dankbar!! ++
 
-++ [Update 19.10.](post/spendenupdate): Dazu kamen am 18.10. nochmals 3845€ sowie am 19.10. erneut 3885€. ++
+++ [Update 20.10.](post/spendenupdate): Dazu kamen am 18.10. nochmals 3845€ sowie am 19.10. erneut 3885€ und 2820€ am 20.10.. ++
 
 wir, Katharinas Unterstützerkreis (koordiniert durch Margit Amon) und Katharinas Familie, kämpfen für die Freiheit von unserer geliebten Katharina, die unschuldig in Venezuela in Haft sitzt. Katharina wurde im Dezember 2021 in der Grenzregion zu Kolumbien von der Militärpolizei festgenommen, aller ihrer Wertgegenstände beraubt und des konstruierten Vorwurfs des Drogenbesitzes angeklagt, wohl mit dem Ziel, Geld für ihre Freilassung zu erzielen. In dem Ort sagte man, Sie müsse mindestens 25000 Dollar wert sein als Europäerin. Katharina hatte diese Drogen nie zuvor gesehen, zum Fundort gibt es mind. 6 verschiedene sich widersprechende Zeugenaussagen. Seither sitzt sie unter unzumutbaren furchtbaren Umständen in einer Gefängniszelle in Guasdualito. Ganz selten hat sie die Möglichkeit zu telefonieren, ihr gesundheitlicher psychischer Zustand verschlechtert sich von Tag zu Tag.
 
