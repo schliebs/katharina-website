@@ -52,5 +52,7 @@ Chronologische Auflistung der Spendeneingänge auf das Spendenkonto Andrea Schmi
 
 21./22.10. 2365.- Euro
 
+23./24.10. 2250.- Euro
+
 Bitte an weitere Spender*innen:  momentan nur das Iban Spendenkonto von Andrea Schmid benutzen, bevor die US-Sanktionsgeschichte mit GoFundMe nicht positiv geklärt ist.
 Großen Dank an ALLE!
