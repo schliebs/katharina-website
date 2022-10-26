@@ -1,18 +1,18 @@
 ---
-title: Spendenupdate vom 22.10.2022
+title: Spendenupdate vom 26.10.2022
 subtitle: Tägliches Update
 
 # Summary for listings and search engines
-summary: Tägliches Spendenupdate - 22.10.
+summary: Tägliches Spendenupdate - 26.10.
 
 # Link this post with a project
 projects: []
 
 # Date published
-date: '2022-10-20T00:00:00Z'
+date: '2022-10-26T00:00:00Z'
 
 # Date updated
-#lastmod: '2020-12-13T00:00:00Z'
+#lastmod: '2022-10-26T00:00:00Z'
 
 # Is this an unpublished draft?
 draft: false
@@ -53,6 +53,8 @@ Chronologische Auflistung der Spendeneingänge auf das Spendenkonto Andrea Schmi
 21./22.10. 2365.- Euro
 
 23./24./25.10. 2760.- Euro
+
+26.10. 850.- Euro
 
 Bitte an weitere Spender*innen:  momentan nur das Iban Spendenkonto von Andrea Schmid benutzen, bevor die US-Sanktionsgeschichte mit GoFundMe nicht positiv geklärt ist.
 Großen Dank an ALLE!
