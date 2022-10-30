@@ -60,9 +60,10 @@ Sollten Sie spenden wollen, bitten wir daher um eine Überweisung mit dem Betref
 - Sparkasse Reutlingen
 - Inhaberin: Andrea Schmid (Katharinas Mutter)
 
-Bei Rückfragen zum Spendenstand stehen wir sehr gerne über die Mailadresse margit.amon\@t-online.de und telefonisch bei Andrea Schmid/Katharinas Mutter unter +49 17662154333 zur Verfügung. Herzlichen Dank für Ihre Unterstützung, wir sind unendlich dankbar. 
+Bei Rückfragen zum Spendenstand stehen wir sehr gerne über die Mailadresse margit.amon\@t-online.de und telefonisch bei Andrea Schmid/Katharinas Mutter unter +49 17662154333 zur Verfügung. 
 
 Herzlichen Dank für Ihre Unterstützung, wir sind unendlich dankbar. 
+
 Ihre
 - Margit Amon (Im Namen des Unterstützerkreises Katharina)
 - Andrea Schmid (Katharinas Mutter)
