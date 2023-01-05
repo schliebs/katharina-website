@@ -39,6 +39,32 @@ email: ''
 highlight_name: false
 ---
 
+**++++ Updates: Jüngste Entwicklungen**
+
+Liebe Freundinnen und Freunde, liebe Spender*innen,
+leider konnte Katharina an Weihnachten noch nicht bei Ihrer Familie sein.
+Wir kämpfen kontinuierlich an allen Fronten, inzwischen vor allem auch bei politischem Mandatsträgern und im Kontakt mit der Botschaft und dem Auswärtigen Amt, wobei schon einige positive Fortschritte erzielt werden konnten. Katharina wurde mittlerweile in ein Frauengefängnis in Caracas (INOF) verlegt, ist aber für mindestens 2 Wochen in Einzelhaft. 
+Ich denke, es täte ihr gut, wenn wir ihr in ein paar Grußworten Mut und Kraft zusprechen könnten. Eure Wünsche für sie nehme ich gerne entgegen und leite diese weiter, sobald wir wieder Kontakt aufnehmen können.
+Schreibt ihr unter: margit.amon@t-online.de
+❤️❤️❤️❤️❤️❤️❤️❤️
+Andrea und Wolfgang, die Eltern und ich bedanken uns ganz herzlich für Eure großzügigen Spenden und Euer Mitgefühl
+und wünschen Euch ein glückliches Neues Jahr.
+
+
+**++++  Neujahrsnachricht von Katharina**
+
+Liebe Freunde und Familie, liebe Unterstützer,
+
+auch wenn ich weit weg bin, spüre ich in meinem Herzen so sehr, wie ihr hinter mir steht. Ich kann überhaupt nicht ausdrücken, wie mich die ganze emotionale und finanzielle Hilfe rührt - mich und meine Familie. Ich hätte mir niemals im Leben ausgemalt, in eine solche Situation zu kommen. Diese Ungerechtigkeit schmerzt ungemein und doch spüre ich immer das Licht, dass mir von so vielen Menschen durch Gebete und gute Wünsche täglich geschickt wird. Auch wenn es ein schwieriger Prozess ist, ist es unsere Aufgabe gerade zu stehen bis es vorbei geht, mit der Wahrheit als Fundament und mit Kraft und Zusammenhalt. Das kann uns keiner nehmen.
+Heute will ich euch frohe Weihnachten wünschen und die Gelegenheit nutzen um DANKE zu sagen. Danke, danke, danke. Ich kann mich nicht in Worten ausdrücken. Jeder Moment, umgeben von geliebten Menschen ist endlos wertvoll - egal ob nah oder fern. Frohes Fest und ein wundervolles, neues Jahr. Hoffentlich kann ich mich bald persönlich bedanken!♥️⭐
+
+Viele Grüße
+Katharina
+
+
+**+++++ Ursprünglicher Post zur Spendenaktion: **
+
+
 Liebe Freundinnen und Freunde, 
 
 wir, Katharinas Unterstützerkreis (koordiniert durch Margit Amon) und Katharinas Familie, kämpfen für die Freiheit von unserer geliebten Katharina, die unschuldig in Venezuela in Haft sitzt. Katharina wurde im Dezember 2021 in der Grenzregion zu Kolumbien von der Militärpolizei festgenommen, aller ihrer Wertgegenstände beraubt und des konstruierten Vorwurfs des Drogenbesitzes angeklagt, wohl mit dem Ziel, Geld für ihre Freilassung zu erzielen. In dem Ort sagte man, Sie müsse mindestens 25000 Dollar wert sein als Europäerin. Katharina hatte diese Drogen nie zuvor gesehen, zum Fundort gibt es mind. 6 verschiedene sich widersprechende Zeugenaussagen. Seither sitzt sie unter unzumutbaren furchtbaren Umständen in einer Gefängniszelle in Guasdualito. Ganz selten hat sie die Möglichkeit zu telefonieren, ihr gesundheitlicher psychischer Zustand verschlechtert sich von Tag zu Tag.
