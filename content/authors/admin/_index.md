@@ -39,6 +39,15 @@ email: ''
 highlight_name: false
 ---
 
+**❤️❤️Update 3 vom 12.1.23❤️❤️**
+
+Leider ist Katharina immer noch nicht frei. Durch unseren stetigen Kampf an allen Fronten, vor allem Bitten bei politischen Mandatsträgern und beim Auswärtigen Amt und der Botschaft wurde Katharina in ein Frauengefängnis in der Nähe von Caracas verlegt. Dort erfährt sie hoffentlich bessere Behandlung als zuvor. Es ist positiv, dass sie jetzt in der Nähe der Hauptstadt ist. Die Botschaft hat sie gestern besucht. 
+Die Berufungsverhandlung ist noch nicht datiert, wir hoffen, dass eine humanitäre Lösung vorher gelingt, ohne dass noch einmal ein langes Verfahren ansteht.
+Euch allen herzlichen Dank, wenn Ihr könnt, teilt diese Seite oder die private Homepage weiter.
+www.freiheit-fuer-katharina.de
+
+
+
 **++++ Updates: Jüngste Entwicklungen**
 
 Liebe Freundinnen und Freunde, liebe Spender*innen,
