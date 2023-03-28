@@ -39,6 +39,22 @@ email: ''
 highlight_name: false
 ---
 
+**Update vom 27.3.23 **
+
+Liebe Freunde und Unterstützer*innen von Katharina,
+leider hat Katharina noch immer nicht die von uns allen so ersehnte und gerechte Freiheit wiedererlangt. Der Berufungstermin wurde seit Ende Februar schon zum dritten Mal verschoben. Jedes Mal erfolgte die Absage sehr kurzfristig: die Anwälte und die Botschaft waren nach langen Anreisen morgens schon im Gericht, als sie erfuhren, dass die Verhandlung ausfällt. Zuletzt am 23.3., es wurde immer ein organisatorischer Grund angegeben, z.B. der Gerichtspräsident wurde nach Caracas gerufen oder Abgeordnete seien zu Besuch.
+Das sind neuerliche Geduldsproben, vor allem für Katharina, die jedes Mal hofft, dass ihr jetzt endlich Gerechtigkeit widerfährt.
+Erfreulich ist, dass am 4.3. ein Benefizkonzert für Katharina stattgefunden hat, im Pfullinger Klosterkeller, organisiert von Harry Zeiler. Es waren circa 160 Leute anwesend, auch die Bundestagsabgeordnete Beate Müller-Gemmeke und der Landtagsabgeordnete Thomas Poreski (beide Grüne), um ihre Unterstützung auch öffentlich zu zeigen. Ein emotionaler Höhepunkt war das gemeinsame Singen des Liedes „Freiheit“ von Marius Müller-Westernhagen.
+Die Konzerteinnahmen gingen komplett auf das Spendenkonto.
+Im Reutlinger Generalanzeiger erschienen in dem Zeitraum zwei Artikel zu Katharinas Fall, die hier beigefügt sind (sh.Link).
+Auch wenn es immer wieder Rückschläge gibt, geht unser Kampf weiter, inzwischen unterstützt uns durch die Intervention von Bundestagsabgeordneten aller Fraktionen die Bundesregierung auf höchster Ebene, die Zusammenarbeit mit der Botschaft und dem Auswärtigen Amt ist viel besser geworden. Wir wünschen uns so sehr, dass dadurch endlich in einem gerechten Verfahren der Freispruch für Katharina erfolgt.
+Wir danken ALLEN Spendern und Spenderinnen und Unterstützer*innen in Wort und Tat, wir sind immer noch überwältigt von der großen Resonanz. Wenn Ihr könnt, teilt die Seite weiterhin.
+Jede kleine Spende kann helfen, die Kostenlast zu erleichtern.
+
+Dankbare herzliche Grüße
+Margit Amon, Andrea Schmid und Wolfgang Maichle
+
+
 **❤️❤️Update 3 vom 12.1.23❤️❤️**
 
 Leider ist Katharina immer noch nicht frei. Durch unseren stetigen Kampf an allen Fronten, vor allem Bitten bei politischen Mandatsträgern und beim Auswärtigen Amt und der Botschaft wurde Katharina in ein Frauengefängnis in der Nähe von Caracas verlegt. Dort erfährt sie hoffentlich bessere Behandlung als zuvor. Es ist positiv, dass sie jetzt in der Nähe der Hauptstadt ist. Die Botschaft hat sie gestern besucht. 
