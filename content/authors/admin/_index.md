@@ -39,7 +39,7 @@ email: ''
 highlight_name: false
 ---
 
-**Update vom 27.3.23 **
+**Update vom 27.3.23**
 
 Liebe Freunde und UnterstützerInnen von Katharina,
 leider hat Katharina noch immer nicht die von uns allen so ersehnte und gerechte Freiheit wiedererlangt. Der Berufungstermin wurde seit Ende Februar schon zum dritten Mal verschoben. Jedes Mal erfolgte die Absage sehr kurzfristig: die Anwälte und die Botschaft waren nach langen Anreisen morgens schon im Gericht, als sie erfuhren, dass die Verhandlung ausfällt. Zuletzt am 23.3., es wurde immer ein organisatorischer Grund angegeben, z.B. der Gerichtspräsident wurde nach Caracas gerufen oder Abgeordnete seien zu Besuch.
