@@ -39,6 +39,18 @@ email: ''
 highlight_name: false
 ---
 
+**Update vom 2.8.23**
+
+Liebe Unterstützer-/innen,
+heute mal wieder ein Update zur aktuellen Situation.
+Anfang Juni wurde das Urteil der Berufungsverhandlung vom April veröffentlicht: 12 Jahre Haft wurden bestätigt.
+Inzwischen wurde Berufung beim obersten Gerichtshof in Venezuela eingelegt, wir haben in Deutschland den besten Anwalt für internationales Strafrecht für Katharinas Fall gewinnen können, politische Verhandlungen laufen weiter. Leider gibt es noch kein positives Ergebnis. Katharina wird am 9.8. 30 Jahre alt und muss ihren Geburtstag im Gefängnis verbringen.
+Gestern spielte sie als Mitglied des Gefängnis-Orchesters und als Solistin im Strafvollzugsministerium in Caracas vor der dortigen Ministerin. Sie ist in grüner Kleidung und spielt Querflöte. Das Video des Auftritts findet ihr [hier auf Instagram](https://www.instagram.com/reel/CvZ1-sCg_Bd/?igshid=MzRlODBiNWFlZA==). 
+ 
+Wir hoffen sehr auf den Erfolg der politischen Verhandlungen und auf die baldige Freiheit von Katharina.
+Dank an alle für die Unterstützung in Worten und Taten!
+
+
 **Update vom 27.3.23**
 
 Liebe Freunde und UnterstützerInnen von Katharina,
