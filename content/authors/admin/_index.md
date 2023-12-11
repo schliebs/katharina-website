@@ -39,6 +39,22 @@ email: ''
 highlight_name: false
 ---
 
+**Update vom 11.12.23**
+
+Heute ist der traurige Jahrestag von Katharinas Gefangennahme vor 2 Jahren, am 11.12.2021 an der Grenze von Kolumbien nach Venezuela. Trotz zweier Gerichtsverfahren und diplomatischer Bemühungen sitzt Katharina immer noch im Gefängnis. Seit letzter Woche hat sie seit 2 Jahren zum ersten Mal ein eigenes Bett für sich und kann nachts schlafen in ihrer Zelle, weil sie nicht mehr die ganze Nacht gestört wird. Wir bewundern sie für ihre Kraft, diese schlimmen Verhältnisse zu ertragen. Sie bewältigt ihren Alltag mit sehr viel Disziplin, soweit ihr das möglich ist. Sie macht Sport und bringt sich mit ihren Kompetenzen in die nicht einfache Gemeinschaft ein. Im August nach ihrem 30. Geburtstag gab es einen Gefängnisaufstand, bei dem sie um ihr Leben fürchten musste.
+Wir hoffen alle, dass Katharina durch die diplomatischen Verhandlungen und den Einsatz von allen Unterstützer*innen bald frei kommt. 
+Wir wünschten so sehr, dass sie an Weihnachten endlich bei uns sein kann. Nun bleiben uns nur noch knapp 2 Wochen, um auf dieses Wunder zu hoffen. Was für ein wunderbares Geschenk es wäre!
+Wir möchten uns bei Euch ganz herzlich für Eure Unterstützung mit Worten und Taten in diesem Jahr bedanken. 
+Nicolas Fandrey, ein guter Freund von Katharina, hat eine <a href="https://freiheit-fuer-katharina.de/uploads/Weihnachtsgeschichte_2023_final.pdf" target="_blank">Weihnachtsgeschichte</a> für Katharina geschrieben, die wunderbar ist. Diese möchten wir mit Euch teilen, vielleicht schenkt sie Euch wie uns Freude in diesen hektischen Vorweihnachtstagen und berührt Euer Herz. Zum PDF geht es <a href="https://freiheit-fuer-katharina.de/uploads/Weihnachtsgeschichte_2023_final.pdf" target="_blank">unter dem Link hier</a>.
+
+Herzliche Grüße 
+Margit 
+auch im Namen von Katharinas Eltern Andrea Schmid und Wolfgang Maichle
+
+Beste Grüße
+Margit Amon
+
+
 **Update vom 2.8.23**
 
 Liebe Unterstützer-/innen,
