@@ -39,6 +39,46 @@ email: ''
 highlight_name: false
 ---
 
+🌲**Weihnachtsgruß von Katharina** 🌲
+                        
+                    ❤️ 23.12.23❤️
+
+Liebe Familie, Freunde,
+liebe Unterstützer,
+
+ich schaue aus dem Fenster durch die Gitterstäbe und ironischerweise fällt mein Blick auf 3 schöne Palmen und im Hintergrund höre ich Vögel zwitschern. Ein interessantes Bild, das so viel aussagt. Die Weihnachtszeit ruft uns alle zur Reflexion auf.
+
+ „Alle Züchtigung aber, wenn sie da ist, dünkt sie uns nicht Freude, sondern Traurigkeit sein; aber danach wird sie geben eine friedsame Frucht der Gerechtigkeit denen, die dadurch geübet sind.“ (Hebräer, 12:11)
+
+ Ich habe Vertrauen, dass es eine Art von Gerechtigkeit gibt, in die wir als Menschen nicht den vollen Einblick haben, die manchmal dauert aber gleichzeitig immer zum perfekten Zeitpunkt kommt.
+ 
+In der Wartezeit liegt es an uns in Weisheit, Toleranz und Verständnis zu wachsen und unser Herz nicht zu schließen sondern zu stärken. 
+Ich mag zwar in einem fernen Land sein, mit viel Unsicherheit und physischer Einsamkeit, enttäuscht von einem System, das von viel Leid geprägt ist, und doch bin ich gleichzeitig so viel reicher geworden. Nicht im materiellen Sinne sondern reich an Hoffnung und Zuversicht.
+
+Das habe ich euch zu verdanken, die mich jeden Tag und jeder auf seine eigene Art unterstützen - voller Herzblut, Überzeugung und Vertrauen. Ihr zeigt mir, dass aus allem Übel eine Chance wächst mit geballtem Licht und in Zusammenhalt die Dunkelheit zu durchbrechen. 
+Auch wenn ich leider für dieses Weihnachtsfest noch nicht zu Hause bin, fühle ich, dass ich schon ganz nahe bin, weil ich weiß, dass wir alle nicht aufgeben bis wir unser Ziel erreichen. 
+
+An diesem Punkt will ich im Namen der ganzen Familie meinen ganz besonderen Dank an unsere Margit richten, unsere Anführerin und Strategin in diesem Schachspiel mit Politik, Diplomatie, Anwälten, persönliche Beziehungen und Herzensangelegenheiten.
+Ich ziehe meinen imaginären Hut vor Dir, liebe Margit und überschütte dich mit Dankbarkeit und Umarmungen. Du bist einfach klasse und wir sind immer wieder ohne Worte. Dein Kampfgeist ist einzigartig. 
+
+Meinen herzlichsten Dank an meinen sehr guten Freund Nicolas für die Einbindung in die wunderschöne Weihnachtsgeschichte, die ihr hoffentlich alle genießen konntet. Was für eine schöne Überraschung! 
+
+Ich danke euch allen von ganzen Herzen für die Spenden, für alle Beiträge, Nachrichten und Mutzusprüche. 
+
+Ich darf so viel lernen über den Wert von Familie, von Heimat und von Zeit im allgemeinen Sinne und kann euch nur allen ans Herz legen, in dieser besonderen Zeit an Weihnachten und Neujahr im Beisein eurer Familie jeden Moment zu genießen und den Alltag und die Sorgen hinter euch zu lassen. 
+
+Das wahre Leben spielt sich in der Gegenwart ab. Ich kann es kaum erwarten, in den Armen meiner Familie zu sein, die mir jeden Tag und jede Minute den Rücken stärkt und eine riesige Menge an Liebe, Kraft und Ausdauer aufbringt um gemeinsam mit mir durchzuhalten bis es endlich geschafft ist. 
+
+Danke, danke, danke an Euch alle. 
+Ich wünsche Euch ein gesegnetes Weihnachtsfest und ein frohes neues Jahr 2024 - voller Licht und Liebe. 
+
+„Wer alleine arbeitet, addiert. Wer zusammenarbeitet, multipliziert.“ (unbekannter Autor) 
+
+Liebste Grüße, 
+Katharina
+
+
+
 **Update vom 11.12.23**
 
 Heute ist der traurige Jahrestag von Katharinas Gefangennahme vor 2 Jahren, am 11.12.2021 an der Grenze von Kolumbien nach Venezuela. 
