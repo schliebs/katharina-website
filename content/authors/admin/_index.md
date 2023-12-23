@@ -39,10 +39,8 @@ email: ''
 highlight_name: false
 ---
 
-🌲**Weihnachtsgruß von Katharina** 🌲
+🌲**Weihnachtsgruß von Katharina** (23.12.23) 🌲
                         
-                    ❤️ 23.12.23❤️
-
 Liebe Familie, Freunde,
 liebe Unterstützer,
 
@@ -76,6 +74,11 @@ Ich wünsche Euch ein gesegnetes Weihnachtsfest und ein frohes neues Jahr 2024 -
 
 Liebste Grüße, 
 Katharina
+
+
+
+
+
 
 
 
