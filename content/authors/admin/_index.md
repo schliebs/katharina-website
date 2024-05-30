@@ -44,16 +44,23 @@ highlight_name: false
 Liebe Freunde und Freundinnen, liebe treuen Unterstützer*innen, liebe Menschen, die diese Seite neu lesen,
 
 seit Katharinas Weihnachtsbrief ist viel Zeit verstrichen. Wir kämpfen weiter mit stetigem Nachdruck, mit Mut und Kraft.
+
 Auf politischer  Ebene und an allen anderen Fronten, auch in Deutschland mit juristischer Unterstützung. Nikolaos Gazeas - Navalnys ehemaliger Anwalt - hat inzwischen in Deutschland das Mandat übernommen und ist engagiert an unserer Seite: Wir hoffen immer noch auf eine sehr baldige politische Lösung mit Venezuela.
+
 Dennoch bleiben die schlimmen Zustände im Gefängnis eine große Herausforderung für Katharina. Ohne ausreichendes Essen und medizinische Versorgung, die wir ihr schwierig organisiert - teuer bezahlt - von außen zukommen lassen, wäre sie verloren (Hier ein <a href="https://efectococuyo.com/la-humanidad/el-inof-es-un-cementerio-de-mujeres-vivas-revela-informe-del-observatorio-venezolano-de-prisiones/" target="_blank">Link zu einem Artikel über die Zustände in Katharinas Gefängnis</a>).
+
 Um die finanzielle Notlage, die durch die Anwaltskosten, etc. entstehen, abzumildern, benötigen  wir weiterhin Eure Unterstützung durch eine Spende, bevorzugt über das Konto von Andreas Mutter. Solltet Ihr spenden wollen und können, bitten wir daher um eine Überweisung mit dem Betreff “Katharina Maichle” auf folgendes Spendenkonto:
 
 IBAN: DE40640500000001621512
+
 BIC: SOLADES1REU (Reutlingen)
+
 Sparkasse Reutlingen
+
 Inhaberin: Andrea Schmid (Katharinas Mutter)
 
 Wir sind für jeden kleinen Betrag und die Weiterleitung des Aufrufes sehr dankbar.
+
 30.5.2024  Margit Amon
 
 
