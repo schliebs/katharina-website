@@ -52,17 +52,19 @@ Dennoch bleiben die schlimmen Zustände im Gefängnis eine große Herausforderun
 Um die finanzielle Notlage, die durch die Anwaltskosten, etc. entstehen, abzumildern, benötigen  wir weiterhin Eure Unterstützung durch eine Spende, bevorzugt über das Konto von Andreas Mutter. Solltet Ihr spenden wollen und können, bitten wir daher um eine Überweisung mit dem Betreff “Katharina Maichle” auf folgendes Spendenkonto:
 
 IBAN: DE40640500000001621512
-
 BIC: SOLADES1REU (Reutlingen)
-
 Sparkasse Reutlingen
-
 Inhaberin: Andrea Schmid (Katharinas Mutter)
 
 Wir sind für jeden kleinen Betrag und die Weiterleitung des Aufrufes sehr dankbar.
 
 30.5.2024  Margit Amon
 
+
+
+
+
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 🌲**Weihnachtsgruß von Katharina** (23.12.23) 🌲
                         
