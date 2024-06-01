@@ -45,7 +45,7 @@ Liebe Freunde und Freundinnen, liebe treuen Unterstützer*innen, liebe Menschen,
 
 seit Katharinas Weihnachtsbrief ist viel Zeit verstrichen. Wir kämpfen weiter mit stetigem Nachdruck, mit Mut und Kraft.
 
-Auf politischer  Ebene und an allen anderen Fronten, auch in Deutschland mit juristischer Unterstützung. Nikolaos Gazeas - Navalnys ehemaliger Anwalt - hat inzwischen in Deutschland das Mandat übernommen und ist engagiert an unserer Seite: Wir hoffen immer noch auf eine sehr baldige politische Lösung mit Venezuela.
+Auf politischer  Ebene und an allen anderen Fronten, auch in Deutschland mit juristischer Unterstützung. Nikolaos Gazeas - Nawalnys ehemaliger Anwalt - hat inzwischen in Deutschland das Mandat übernommen und ist engagiert an unserer Seite: Wir hoffen immer noch auf eine sehr baldige politische Lösung mit Venezuela.
 
 Dennoch bleiben die schlimmen Zustände im Gefängnis eine große Herausforderung für Katharina. Ohne ausreichendes Essen und medizinische Versorgung, die wir ihr schwierig organisiert - teuer bezahlt - von außen zukommen lassen, wäre sie verloren (Hier ein <a href="https://efectococuyo.com/la-humanidad/el-inof-es-un-cementerio-de-mujeres-vivas-revela-informe-del-observatorio-venezolano-de-prisiones/" target="_blank">Link zu einem Artikel über die Zustände in Katharinas Gefängnis</a>).
 
