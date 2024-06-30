@@ -1,6 +1,6 @@
 ---
 # Display name
-title: Katharina Maichle
+title: Katharina M.
 
 # Full name (for SEO)
 first_name: .
@@ -49,7 +49,7 @@ Auf politischer  Ebene und an allen anderen Fronten, auch in Deutschland mit jur
 
 Dennoch bleiben die schlimmen Zustände im Gefängnis eine große Herausforderung für Katharina. Ohne ausreichendes Essen und medizinische Versorgung, die wir ihr schwierig organisiert - teuer bezahlt - von außen zukommen lassen, wäre sie verloren (Hier ein <a href="https://efectococuyo.com/la-humanidad/el-inof-es-un-cementerio-de-mujeres-vivas-revela-informe-del-observatorio-venezolano-de-prisiones/" target="_blank">Link zu einem Artikel über die Zustände in Katharinas Gefängnis</a>).
 
-Um die finanzielle Notlage, die durch die Anwaltskosten, etc. entstehen, abzumildern, benötigen  wir weiterhin Eure Unterstützung durch eine Spende, bevorzugt über das Konto von Andreas Mutter. Solltet Ihr spenden wollen und können, bitten wir daher um eine Überweisung mit dem Betreff “Katharina Maichle” auf folgendes Spendenkonto:
+Um die finanzielle Notlage, die durch die Anwaltskosten, etc. entstehen, abzumildern, benötigen  wir weiterhin Eure Unterstützung durch eine Spende, bevorzugt über das Konto von Andreas Mutter. Solltet Ihr spenden wollen und können, bitten wir daher um eine Überweisung mit dem Betreff “Katharina M.” auf folgendes Spendenkonto:
 
 IBAN: DE40640500000001621512<br>
 BIC: SOLADES1REU (Reutlingen)<br>
@@ -124,7 +124,7 @@ Nicolas Fandrey, ein guter Freund von Katharina, hat eine <a href="https://freih
 Herzliche Grüße 
 Margit 
 
-(auch im Namen von Katharinas Eltern Andrea Schmid und Wolfgang Maichle)
+(auch im Namen von Katharinas Eltern Andrea Schmid und Wolfgang M.)
 
 **Update vom 2.8.23**
 
@@ -153,7 +153,7 @@ Wir danken ALLEN Spendern und Spenderinnen und Unterstützer*innen in Wort und T
 Jede kleine Spende kann helfen, die Kostenlast zu erleichtern.
 
 Dankbare herzliche Grüße
-Margit Amon, Andrea Schmid und Wolfgang Maichle
+Margit Amon, Andrea Schmid und Wolfgang M.
 
 
 **❤️❤️Update 3 vom 12.1.23❤️❤️**
@@ -205,7 +205,7 @@ Bitte unterstützt sie, damit wir dies erreichen können.
 Update: In den ersten Stunden ist die Kampagne bereits unglaublich angelaufen, wir sind überwältigt. Leider wurde die Spendensammlung vom Betreiber “GoFundMe.com” vorläufig aufgrund von US-Sanktionen gegen Venezuela blockiert (siehe [Post hier](post/getting-started)). Wir kämpfen für die Freigabe des Geldes und halten Euch hier auf dem Laufenden!
 
 Bis das Missverständnis mit den US-Sanktionen gegen Venezuela geklärt ist können leider keine Gelder via GoFundMe, Paypal, VISA und anderen US-Dienstleistern in Empfang genommen werden. 
-Sollten Sie spenden wollen, bitten wir daher um eine Überweisung mit dem Betreff "Katharina Maichle" an folgendes Spendenkonto: 
+Sollten Sie spenden wollen, bitten wir daher um eine Überweisung mit dem Betreff "Katharina M." an folgendes Spendenkonto: 
 
 - IBAN: DE40640500000001621512
 - BIC: SOLADES1REU (Reutlingen) 
@@ -219,5 +219,5 @@ Herzlichen Dank für Ihre Unterstützung, wir sind unendlich dankbar.
 Ihre
 - Margit Amon (Im Namen des Unterstützerkreises Katharina)
 - Andrea Schmid (Katharinas Mutter)
-- Wolfgang Maichle (Katharinas Vater)
+- Wolfgang M. (Katharinas Vater)
 
