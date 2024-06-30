@@ -1,6 +1,6 @@
 ---
 # Display name
-title: Katharina
+#title: Katharina
 
 # Full name (for SEO)
 first_name: .
