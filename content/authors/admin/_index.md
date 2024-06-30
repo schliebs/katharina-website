@@ -45,7 +45,7 @@ Liebe Freunde und Freundinnen, liebe treuen Unterstützer*innen,
 
 Katharina ist nach über zweieinhalb Jahren endlich frei und heute morgen wohlbehalten in Deutschland gelandet. Diese Webseite befindet sich deshalb aktuell in Überarbeitung. 
 
-Wir bitten Journalist*Innen, Katharina nach zweieinhalb Jahren Haft unter schwersten Bedingungen etwas Ruhe zu gestatten. Wir melden uns zu gegebener Zeit mit weiteren Updates. 
+Wir bitten Journalist*Innen, Katharina nach zweieinhalb Jahren Haft unter schwersten Bedingungen etwas Ruhe zu gestatten. Wir melden uns zu gegebener Zeit mit weiteren Updates. Vielen herzlichen Dank für Ihr Verständnis. 
 
 Um die weiterhin bestehende finanzielle Notlage und Verschuldung, die durch Kosten für Anwälte und Versorgung im Gefängnis entstanden ist, abzumildern, sind wir weiterhin für Eure Unterstützung durch eine Spende dankbar. Solltet Ihr spenden wollen und können, bitten wir daher um eine Überweisung mit dem Betreff “Katharina” auf folgendes Spendenkonto:
 
