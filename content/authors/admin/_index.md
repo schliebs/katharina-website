@@ -45,7 +45,7 @@ Katharina ist nach über zweieinhalb Jahren endlich frei und heute morgen wohlbe
 
 Wir bitten Journalist*Innen, Katharina nach zweieinhalb Jahren ungerechtfertigter Inhaftierung unter schwersten Bedingungen etwas Ruhe zu gestatten. Wir melden uns zu gegebener Zeit mit weiteren Updates. Vielen herzlichen Dank für Ihr Verständnis. 
 
-Um die weiterhin bestehende finanzielle Notlage und Verschuldung, die durch Kosten für Anwälte und Versorgung im Gefängnis entstanden ist, abzumildern, sind wir weiterhin für Eure Unterstützung durch eine Spende dankbar. Solltet Ihr spenden wollen und können, bitten wir daher um eine Überweisung mit dem Betreff “Katharina” auf folgendes Spendenkonto:
+Das Spendenkonto von Katharinas Familie ist weiterhin aktiv:
 
 IBAN: DE40640500000001621512<br>
 BIC: SOLADES1REU (Reutlingen)<br>
