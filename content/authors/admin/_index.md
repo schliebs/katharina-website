@@ -10,7 +10,7 @@ last_name: .
 superuser: true
 
 # Role/position/tagline
-role: Spendenkampagne organisiert durch Unterstützerkreis um Margit Amon und Katharinas Familie
+role: .
 
 # Organizations/Affiliations to show in About widget
 #organizations:
