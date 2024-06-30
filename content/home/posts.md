@@ -12,7 +12,7 @@ weight: 110
 title: Neuigkeiten
 subtitle: Hier halten wir Euch auf dem Laufenden
 
-active:false
+active: false
 
 content:
   # Filter on criteria
