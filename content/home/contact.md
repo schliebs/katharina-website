@@ -26,7 +26,6 @@ content:
 
   # Contact details (edit or remove options as required)
   email: margit.amon@t-online.de
-  phone: +49 151 12145283
  # address:
  #   street: 450 Serra Mall
  #   city: Stanford
