@@ -7,18 +7,6 @@ main:
   - name: Freiheit für Katharina
     url: '#about'
     weight: 10
-  - name: Katharina's Brief
-    url: '#gallery'
-    weight: 20
-  - name: Neuigkeiten
-    url: '#posts'
-    weight: 20
-  - name: Posts
-    url: '#posts'
-    weight: 20
-  - name: Fotos von Katharina
-    url: '#gallery2'
-    weight: 55    
   - name: Contact
     url: '#contact'
     weight: 60
